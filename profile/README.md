@@ -7,7 +7,7 @@ Projects:
 https://t.me/a_clicker_bot \
 https://t.me/a_careers_bot (in progress)
 
-We can help ypu with your project!
+We can help you with your project!
 
 Contact:
 https://t.me/some_wallet
