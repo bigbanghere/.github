@@ -1,6 +1,8 @@
 a.k.a. A TEAM DAO, Some DAO, The Real Some DAO, TON Swap
 
-A Project focused on creating Telegram Mini Apps with TON deep intergation.
+Our mission is to provide freedom, privacy, speed, security and accessibility of interactions and communication between people.
+
+Now A Project is focused on creating Telegram Mini Apps with deep TON intergation.
 
 Projects:
 
