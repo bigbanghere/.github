@@ -6,6 +6,7 @@ Now A Project is focused on creating Telegram Mini Apps with deep TON intergatio
 
 Projects:
 
+https://t.me/swapswp_bot \
 https://t.me/a_clicker_bot \
 https://t.me/a_careers_bot (in progress)
 
