@@ -13,4 +13,4 @@ https://t.me/a_careers_bot (in progress)
 We can help you with your project!
 
 Contact:
-https://t.me/vsevolod_ai
+https://t.me/cryptosoft_official
