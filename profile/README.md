@@ -13,4 +13,5 @@ https://t.me/a_careers_bot (in progress)
 We can help you with your project!
 
 Contact:
-https://t.me/cryptosoft_love
+https://t.me/sraibaby
+https://tonviewer.com/EQDWfTV0XtuUrRYF8BqOm1U2yr3axYlpvxxnGXyx2nwIypM3
