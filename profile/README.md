@@ -12,6 +12,8 @@ https://t.me/a_careers_bot (in progress)
 
 We can help you with your project!
 
+Wallet:
+https://tonviewer.com/EQDWfTV0XtuUrRYF8BqOm1U2yr3axYlpvxxnGXyx2nwIypM3
+
 Contact:
 https://t.me/sraibaby
-https://tonviewer.com/EQDWfTV0XtuUrRYF8BqOm1U2yr3axYlpvxxnGXyx2nwIypM3
