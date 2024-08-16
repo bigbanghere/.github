@@ -1,14 +1,8 @@
-a.k.a. A TEAM DAO, Some DAO, The Real Some DAO, TON Swap
+a.k.a. Cryptosoft, A Project, A TEAM DAO, Some DAO, The Real Some DAO, TON Swap, Tiktologia
 
 Our mission is to provide freedom, privacy, speed, security and accessibility of interactions and communication between people.
 
-Now A Project is focused on creating Telegram Mini Apps with deep TON intergation.
-
-Projects:
-
-https://t.me/swapswp_bot \
-https://t.me/a_clicker_bot \
-https://t.me/a_careers_bot (in progress)
+We are focused on creating Telegram Mini Apps with deep TON intergation.
 
 We can help you with your project!
 
