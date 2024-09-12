@@ -8,8 +8,8 @@ We can help you with your project!
 
 Our dApps: 
 
-Heads or Tails game: https://t.me/x2Lottery
-Dex-aggregator: https://t.me/s_w_a_p_bot
+Heads or Tails game: https://t.me/x2Lottery \
+Dex-aggregator: https://t.me/s_w_a_p_bot \
 Clicker-game: https://t.me/a_clicker_bot
 
 Wallet:
