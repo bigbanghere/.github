@@ -6,9 +6,7 @@ We are focused on creating dApps & Telegram Mini Apps on blockchain TON.
 
 We can help you with your project!
 
-Our dApps: 
-
-Heads or Tails game: https://t.me/x2LotteryBot
+Try out our Heads or Tails game: https://t.me/x2LotteryBot
 
 Contact:
 https://t.me/sraibaby
