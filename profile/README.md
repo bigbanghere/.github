@@ -1,7 +1,10 @@
-a.k.a. Gradually, Cryptosoft, A Project, A TEAM DAO, Some DAO, The Real Some DAO, TON Swap, Tiktologia
+Hundreds of attempts, DNA working, research, tears, emotions, feelings, collapsing universes inside and out before branding finally was born, 
 
-Our mission is to provide freedom, privacy, speed, security and accessibility of interactions and communication between people.
+Company? Organization? Structure? Matter? Whatever! We are only realizing and explor(d)ing our Big Bang... n' Band :), building and creating it at a time, in time. 
 
-We are focused on creating dApps & Telegram Mini Apps on blockchain TON. We follow AI trend and operate cross-chain as well.
+What's it? Where are we? What's happening? How is it like? All this questions are blowing our minds and we don't want to ever stop IT it. Could we ever? That's it! IT is! And again...
 
-Try out our Heads or Tails game: https://t.me/x2LotteryBot
+BIG BANG 💥
+= BIG BAND
+
+Хдыщъ!
