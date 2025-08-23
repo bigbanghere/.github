@@ -1,3 +1,5 @@
+![Announcement](https://raw.githubusercontent.com/bigbanghere/.github/refs/heads/main/profile/announcement.png)
+
 Hundreds of attempts, DNA working, research, tears, emotions, feelings, collapsing universes inside and out before branding finally was born, 
 
 Company? Organization? Structure? Matter? Whatever! We are only realizing and explor(d)ing our Big Bang... n' Band :), building and creating it at a time, in time. 
