@@ -1,12 +1,2 @@
-![Announcement](https://raw.githubusercontent.com/bigbanghere/.github/refs/heads/main/profile/announcement.png)
-
-Hundreds of attempts, DNA working, research, tears, emotions, feelings, collapsing universes inside and out before branding finally was born, 
-
-Company? Organization? Structure? Matter? Whatever! We are only realizing and explor(d)ing our Big Bang... n' Band :), building and creating it at a time, in time. 
-
-What's it? Where are we? What's happening? How is it like? All this questions are blowing our minds and we don't want to ever stop IT it. Could we ever? That's it! IT is! And again...
-
-BIG BANG 💥
-= BIG BAND
-
-Хдыщъ!
+🇺🇸 You are in Big Bang corporate outline, work is in accordance with Big Bang corporate culture
+🇷🇺 Вы находитесь в корпоративном контуре Big Bang, работа происходит в соответствии с корпоративной культурой компании
